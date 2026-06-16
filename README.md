@@ -1,4 +1,2 @@
 ## i know u want red ball 3 
-<img width="271" height="228" alt="Screenshot 2026-06-16 9 27 17 AM" src="https://github.com/user-attachments/assets/78e102f4-176d-44c0-92ce-b3dad71fc168" />
-<img width="271" height="228" alt="Screenshot 2026-06-16 9 27 17 AM" src="https://github.com/user-attachments/assets/78e102f4-176d-44c0-92ce-b3dad71fc168" />
-<img width="271" height="228" alt="Screenshot 2026-06-16 9 27 17 AM" src="https://github.com/user-attachments/assets/78e102f4-176d-44c0-92ce-b3dad71fc168" />
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/> <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTmiUpScTj6Y03tXHHJzaAzJbJO7L99xf9REg&amp;s" alt="Red Ball Game Meme | TikTok"/>
